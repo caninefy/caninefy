@@ -26,7 +26,7 @@
       $\color{#00000}{\textsf{＞＜  follow  ma  tiktok  account  @resteyok i animate n draw  }}$ <br>
       $\color{#7D8E9B}{\textsf{  c+h  encouraged  please  2 }}$ <br>
       $\color{#00000}{\textsf{　　 　﹒　whisper  2  int  im  mostly  afk  all da time﹕}}$ <br>
-      $\color{#7D8E9B}{\textsf{ skin  inspo  r  fine aswell }}$ <br>
+      $\color{#7D8E9B}{\textsf{ DNI if  u wan6  me  just 4 supporter help }}$ <br>
 </th>
 </tr>
 </table>
