@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![img](https://i.imgur.com/s7uOmV0.png)
+![img](https://64.media.tumblr.com/55cd49f6b15bbbfb649245e08d7520e1/f19c41b7e7a674ab-9e/s400x600/3b767f640ad60d593e1accc66f9da4c8b385d82e.pnj)
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 
@@ -12,7 +12,7 @@
 
 ![div](https://i.imgur.com/2jexoy4.png)
 
-<img align="left" width="250" height="250" alt="all graphics by kirakuurusu on tumblr" src="https://i.imgur.com/iyAyy3C.png"/>
+<img align="left" width="250" height="250" alt="all graphics by kirakuurusu on tumblr" src="https://64.media.tumblr.com/56e6984ad711f1e54b05bd6610d4ac24/f19c41b7e7a674ab-92/s100x200/29385b5e669c6aa8f796c50e02c40808edaabdeb.pnj"/>
 
 <table>
   <tr>
@@ -31,7 +31,7 @@
 
 <div align="center">
   
-![div](https://i.imgur.com/REZaCmu.png)
+![div](https://i.img)
 
 <img align="right" width="250" height="250" alt="all graphics by kirakuurusu on tumblr" src="https://i.imgur.com/VIRtt9G.png"/>
 
@@ -49,12 +49,12 @@
 </tr>
 </table>
 
-![div](https://i.imgur.com/2jexoy4.png)
+![div](https://64.media.tumblr.com/6b2bfc64befaa3e8908f01c684802e51/f19c41b7e7a674ab-4a/s100x200/b6a8d2fba3240de21282892a74c5ee66f9f151a7.pnj)
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 
 
-![img](https://i.imgur.com/cfrdNiW.png)
+![img](https://64.media.tumblr.com/6b2bfc64befaa3e8908f01c684802e51/f19c41b7e7a674ab-4a/s100x200/b6a8d2fba3240de21282892a74c5ee66f9f151a7.pnj)
 
 $\color{#7D8E9B}{\textsf{thanks for reading!!}}$
 $\color{#000000}{\textsf{code by @zixcore on discord}}$
